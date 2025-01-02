@@ -2,4 +2,4 @@
 Bahan DeX
 Silahkan gunakan dengan bijak
 
-Pasword Winrar: xymbiot-solution
+Password Winrar: xymbiot-solution
